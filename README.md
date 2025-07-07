@@ -3,7 +3,7 @@ INTERNET
 
 
 
-![WhatsApp Image 2025-04-24 at 18 51 01 (1)]
+[WhatsApp Image 2025-04-24 at 18 51 01 (1)]
 
  Todos nós temos uma História. Quando 
 entendemos de onde viemos, conseguimos 
