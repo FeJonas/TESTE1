@@ -2,6 +2,7 @@
 
 
 
+![uIsTKZsJPHUuaiVJn+YVKbqoxWFAa7G6kTHtm9_t2HA=](https://github.com/user-attachments/assets/30bd7a4b-aa27-41f6-9b73-4679d009a59a)
 
 
 Todos nós temos uma História. Quando 
