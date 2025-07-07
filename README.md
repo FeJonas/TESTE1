@@ -1,12 +1,10 @@
-# HISTÓRIA DA 
-INTERNET
+# HISTÓRIA DA  INTERNET
 
 
 
-[WhatsApp Image 2025-04-24 at 18 51 01 (1)]
 
-![uIsTKZsJPHUuaiVJn+YVKbqoxWFAa7G6kTHtm9_t2HA=](https://github.com/user-attachments/assets/7f5cb602-2fea-4f0e-a3aa-b4d9abb5dc6d)
- Todos nós temos uma História. Quando 
+
+Todos nós temos uma História. Quando 
 entendemos de onde viemos, conseguimos 
 compreender a evolução até chegar onde 
 estamos. E com a Internet não foi diferente. 
